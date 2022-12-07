@@ -1,0 +1,1 @@
+# Patikadev_Odevleri
